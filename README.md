@@ -1,4 +1,6 @@
 # Scripts
 <p align="center">
-(https://github.com/user-attachments/assets/fda08127-a4aa-438e-bd83-02df4c4c8d7b)
+
+![cats](https://github.com/user-attachments/assets/6d62bb30-8028-41df-acdd-d02382cbdcca)
+ 
 </p>
